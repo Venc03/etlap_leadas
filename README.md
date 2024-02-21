@@ -1,3 +1,4 @@
+Végi Dániel Márk
 
 ![image](https://github.com/Venc03/etlap_leadas/assets/63917996/afb0b3e9-006f-48a3-85e6-f121ba41fedd)
 
